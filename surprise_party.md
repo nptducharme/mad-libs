@@ -8,4 +8,4 @@ to **[VERB]** you at the **[NOUN]** and time of the party, but don't **[VERB]**
 them why. Then, **[VERB]** for the party with **[NOUN]** and **[NOUN]**. When
 the **[NOUN]** **[VERB]**, everyone **[VERB]** "Surprise!".
 
-I think surprise parties are **[ADJECTIVE]**!
+I think surprise parties are gnar, bro!
